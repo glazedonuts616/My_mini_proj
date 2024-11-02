@@ -10,4 +10,6 @@ because of fifth mistake....
 
 Aight going good?
 
-OK not giving up...
+OK not giving up...\
+
+All or nothing???
